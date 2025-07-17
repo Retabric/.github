@@ -1,1 +1,1 @@
-## Hi there 👋 its RETABRIC
+## Retabric - Trade, build, explore
